@@ -57,8 +57,8 @@ We welcome your contributions and ideas for enhancing the website.
 
 For any inquiries or if you simply want to share your culinary experiences with us, we're here to listen:
 
-- 📧 Email: foodie@foodiefusion.com
-- ☎️ Phone: +1 (123) 456-7890
-- 📍 Address: 123 Foodie Street, Culinary City, Foodland
+- 📧 Email: shivamyadav22aug@gmail.com
+- ☎️ Phone: +91-9080467733
+- 📍 Address: Hotel Janpath Fort f street Kalasipalya bangalore 560002
 
 Thank you for visiting FoodieFusion! 🌮🍕🍔 Enjoy your culinary journey with us. 🥂🍰🍷
